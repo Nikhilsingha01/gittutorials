@@ -1,1 +1,1 @@
-Hello , what is your MObile Number
+Hello , what is your Mobile Number
